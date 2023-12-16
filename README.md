@@ -1,0 +1,2 @@
+# Mirjalol98
+Oʻzbekiston 
